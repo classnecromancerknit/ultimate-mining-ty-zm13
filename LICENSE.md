@@ -1,4 +1,4 @@
-#  
+#  advanced ultimate mining tycoon Script is the best ultimate mining tycoon Script, featuring auto-heal and auto-sell. Safe and powerful for all your
 
 
 
